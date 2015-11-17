@@ -1,2 +1,0 @@
-# ctdaniel.github.io
-daniel
